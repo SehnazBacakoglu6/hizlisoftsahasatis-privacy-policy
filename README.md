@@ -1,1 +1,1 @@
-# hizlisoftsahasatis-privacy-policy
+# HızlıSoft Saha Satış Gizlilik Politikası
